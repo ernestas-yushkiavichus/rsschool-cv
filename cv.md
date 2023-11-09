@@ -7,7 +7,6 @@
 - Github: [Github](https://github.com/ernestas-yushkiavichus)
 ## About me
 
-My outstanding interpersonal skills enable me to easily interact with diverse individuals, and I excel in team collaboration. I firmly believe that effective cooperation and communication play a crucial role in achieving common goals.
 
 One of my key assets is my eagerness to learn and develop. I always strive to acquire new skills and knowledge and am willing to invest effort in self-improvement. This allows me to adapt to rapidly changing work environments and effectively tackle new challenges.
 
