@@ -1,9 +1,9 @@
 # Ernestas Yushkiavichus
 
 ## Contacts
+- Phone: +375 29 902 40 42
 - Email: ernestas.yu@gmail.com
 - Location: Minsk, Belarus
-- Phone: +375 29 902 40 42
 - Github: [Github](https://github.com/ernestas-yushkiavichus)
 ## About me
 
